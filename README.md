@@ -23,3 +23,18 @@
 ### [[Day06_Recorded_Video]](https://transcripts.gotomeeting.com/#/s/f08c1e113f2eb2809f3cea5beb93087397fb193ed768cb0233d6d179d36ff9e2)
 
 -------------------------
+
+### Day7
+### [[Day07_Recorded_Video]](https://transcripts.gotomeeting.com/#/s/c24ae030e59b1b3e860d345ec9d1790292d43e7d556de5b839176afe6ddf7576)
+
+-------------------------
+
+### Day8
+### [[Day08_Recorded_Video]](https://transcripts.gotomeeting.com/#/s/621e110279835fad16b9ecbb1c0f8565316ea94d7acdc4c358300b0ae956ddab)
+
+-------------------------
+
+### Day9
+### [[Day09_Recorded_Video]]()
+
+-------------------------
